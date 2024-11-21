@@ -20,6 +20,7 @@ Soy estudiante de Ingeniería en Software en la Universidad Técnica de Ambato, 
 
 ### 📫 Contáctame
 - **Correo electrónico**: sortiz7841@uta.edu.ec  
-- **Número de teléfono**: +593 998067093  
+- **WhatsApp**: [Haz clic aquí para contactarme](https://wa.me/593998067093)
+
 
 ¡Gracias por visitar mi perfil!
